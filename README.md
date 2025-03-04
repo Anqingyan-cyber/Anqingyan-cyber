@@ -2,7 +2,7 @@
 
 ![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Hi!+Here+is+Anqingyan-cyber)
 
-![名称](https://count.getloli.com/get/@:name?theme=asoul) # md格式
+![anqingyan](https://count.getloli.com/get/@:name?theme=asoul)
 # About me
 
 
